@@ -1,0 +1,3 @@
+Paneer (Indian cottage cheese): This is the main ingredient in the dish and it is important to use a good quality paneer. In fact, as with all my paneer recipes, I recommend using Homemade Paneer. This ensures freshness and avoids any hidden ingredients and preservatives found in store-bought paneer.
+Marinade: Homemade Hung Curd or Hung Yogurt is used as the base of the marinade. You can even use greek yogurt. Indian spice powders are then added to balance out the sour yogurt taste and give a flavor kick to the dish.
+Veggies: Here I have used bell peppers (capsicum) and onions. You can use veggies of your choice, including baby corn, mushrooms, cauliflower, tomatoes, broccoli and more.

@@ -1,0 +1,8 @@
+Barbecue: You can also cook the paneer tikka on barbecue grill.
+Grilling in the oven: In the oven grill for 15 to 20 minutes at 230 or 240 degree celsius with only the top heating element on. Basically here we are broiling the dish.
+Marination Time: It is best to marinate the paneer cubes for 2 hours or more. You can also keep the marinated paneer overnight in the fridge. Since I made the paneer tikka for dinner, I marinated the paneer and veggies for 2 hours in the refrigerator. The longer it marinates, the better flavors get infused into the paneer and veggies.
+Vegetables: The veggies used can be of your choice. In the step by step photos, I have used onions and green bell pepper (capsicum). In the video I have used red, yellow and green bell pepper with onions. You can use baby corn, mushrooms, cauliflower, tomatoes, broccoli etc. For cauliflower blanch them before marinating.
+Adding Oil: While grilling or baking, the paneer cubes and veggies can become dry. Oil is added to paneer and veggie mixture to prevent this from happening. The paneer cubes and veggies are also brushed with some oil to avoid them from becoming dry.
+Overcooking: Don’t overcook the paneer as they then become rubbery, dry and hard. The paneer should be soft, well cooked but also succulent.
+Marinade: The leftover marinade can be applied or brushed on the paneer tikka before grilling them. If you are making paneer tikka masala gravy, you can use the extra marinade in the gravy.
+Vegan Options: Use tofu, seitan or tempeh in place of paneer. Use a vegan yogurt like almond or cashew yogurt in place of dairy yogurt.
